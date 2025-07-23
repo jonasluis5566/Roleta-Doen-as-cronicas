@@ -1,0 +1,1 @@
+# Roleta-Doen-as-cronicas
